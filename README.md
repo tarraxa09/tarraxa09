@@ -2,7 +2,7 @@
 **my name is Diego**
 
 - i'm studyng in alura
-- Iḿ
+- I love Santos fc
 
 welcome 🥇
 
